@@ -1,1 +1,2 @@
-# project-26-choco-cake
+A layered Chocolate Cake never goes out of style. Trends may come and go but a Chocolate Cake is as popular today as it was 10, 20, or 75 years ago. This Simple Chocolate Cake is especially appealing both for the baker and for those who get to enjoy this cake. I find that most bakers are always on the lookout for a cake recipe that can be made really quickly yet doesn't sacrifice texture and flavor.
+
